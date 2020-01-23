@@ -7,8 +7,8 @@ discription in hyderabad
 
 [NWMSSITE](https://www.nwmissouri.edu/wellness/faq.htm)
 
-![Click-here-for-inmage](https://en.wikipedia.org/wiki/Northwest_Missouri_State_University#/media/File:NW_Missouri_State_seal.png)
-
+![nwmslogo](https://upload.wikimedia.org/wikipedia/en/3/32/NW_Missouri_State_seal.png)
 
 1. ertyytretr
+2. logotimes
 
